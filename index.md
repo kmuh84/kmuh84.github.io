@@ -9,3 +9,5 @@ Tom Barnaby arbeitet beim Causton CID (Criminal Investigation Department) und is
 * klug
 
 > I’ve always been more interested
+
+<img src="https://de.wikipedia.org/wiki/Inspector_Barnaby#/media/Datei:John_Nettles_in_Hamburg_03_(2015).jpg"/>
