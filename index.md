@@ -7,3 +7,5 @@ Tom Barnaby arbeitet beim Causton CID (Criminal Investigation Department) und is
 * tolerant
 * scharfsinnig
 * klug
+
+> I’ve always been more interested
